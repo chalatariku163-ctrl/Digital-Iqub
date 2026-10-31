@@ -1,1 +1,1 @@
-# Digital-Iqub
+petros&tolera digtal ekub
